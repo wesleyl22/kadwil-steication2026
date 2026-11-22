@@ -1,2 +1,4 @@
 # kadwil-steication2026
-ganteng
+gantengd
+
+random semangat steik26 
